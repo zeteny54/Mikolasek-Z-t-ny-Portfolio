@@ -1,1 +1,1 @@
-# Mikolasek-Z-t-ny-Portfolio
+# Mikolasek-Zeteny-Portfolio
